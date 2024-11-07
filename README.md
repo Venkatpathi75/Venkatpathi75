@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Venkatpathi75
+- 👀 I’m interested in coding 🧑‍💻
+- 🌱 I’m currently pursue B.TECH
+- 💞️ I’m looking to collaborate on project 
+- 📫 How to reach me 
+- 😄 Pronouns: Be Valuable Not Available !!
+- ⚡ Fun fact: A Crocodile Cannot Stick It's Tongue Out .
